@@ -1,4 +1,11 @@
-## Hi there 👋
+## Hi! welcome to my GitHub!!
+I'm Amie/Amia, I previously went by names such as Adeline, Frances, Novel, LicoriceCake, and Harvey!
+## Fandoms!:
+I'm currently in fandoms such as Vocaloid, OSC, Jack Stauber, Animal Crossing! 
+## Songs I like?
+At the moment, I really like Ultimate Senpai by PinocchioP, Cheeseburger Family and Dinner Is Not Over by Jack Stauber, and When Spring Comes - Roundtable Reprise and Queen of Venus by Flavor Foley!
+## Favourite Characters?
+Some if my favourite characters at this point in time are Remote (BFDI), Pencil (BFDI), 
 
 <!--
 **ult1mate-senpa1/ult1mate-senpa1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
