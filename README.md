@@ -10,6 +10,7 @@ At the moment, I really like Ultimate Senpai by PinocchioP, Cheeseburger Family 
 Some of my favourite characters at this point in time are Remote (BFDI), Pencil (BFDI), Gumi (Vocaloid/SynthV), Kevin (SynthV), Pecan (Animal Crossing), and Adachi Rei (UTAU/Vocaloid)
 ## What platforms am I on?:
 Discord (themarigoldsthebuttercups), Pony Town (Usually with an Ultimate Senpai skin), TikTok (cyangirl_), and Tumblr (themarigoldsthebuttercups).
+https://cdn.discordapp.com/attachments/1559098753191907420/1568827565035225088/image0.gif
 <!--
 **ult1mate-senpa1/ult1mate-senpa1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
