@@ -10,7 +10,7 @@ At the moment, I really like Ultimate Senpai by PinocchioP, Cheeseburger Family 
 Some of my favourite characters at this point in time are Remote (BFDI), Pencil (BFDI), Gumi (Vocaloid/SynthV), Kevin (SynthV), Pecan (Animal Crossing), and Adachi Rei (UTAU/Vocaloid)
 ## What platforms am I on?:
 Discord (themarigoldsthebuttercups), Pony Town (Usually with an Ultimate Senpai skin), TikTok (cyangirl_), and Tumblr (themarigoldsthebuttercups).
-https://cdn.discordapp.com/attachments/1559098753191907420/1568827565035225088/image0.gif
+<div class="tenor-gif-embed" data-postid="11625085781112065707" data-share-method="host" data-aspect-ratio="1.33155" data-width="100%"><a href="https://tenor.com/view/hello-neighbor-like-and-subscribe-gif-11625085781112065707">Hello Neighbor Like And Subscribe GIF</a>from <a href="https://tenor.com/search/hello+neighbor-gifs">Hello Neighbor GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 <!--
 **ult1mate-senpa1/ult1mate-senpa1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
