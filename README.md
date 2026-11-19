@@ -1,7 +1,7 @@
 <img width="398" height="63" alt="17951210134754640930609985112047" src="https://github.com/user-attachments/assets/7b38ad82-694f-4819-857c-689367b38725" />
 
 ## Hi! welcome to my GitHub!!: 
-I'm Amie/Amia, I previously went by names such as Adeline, LicoriceCake, and Harvey!
+I'm Amie/Marmalade, I previously went by names such as Adeline, LicoriceCake, and Harvey!
 ## Who am I?:
 I'm a British non-binary pansexual aroace, who enjoys drawing, listening to music, and playing on older consoles like the Wii and PS3! (18+ Strangers DNI!!) My names originate from Pokémon Amie and Mizuki Akiyama's online name, Amia! I plan on going into coding and graphic design in the future!
 ## Fandoms!:
