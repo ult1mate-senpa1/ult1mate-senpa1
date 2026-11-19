@@ -1,4 +1,4 @@
-<img width="150" height="20" alt="17951208500424001746918559506668" src="https://github.com/user-attachments/assets/4d7f589b-a490-46b6-b891-91e479396459" />
+<img width="398" height="63" alt="17951210134754640930609985112047" src="https://github.com/user-attachments/assets/7b38ad82-694f-4819-857c-689367b38725" />
 
 ## Hi! welcome to my GitHub!!: 
 I'm Amie/Amia, I previously went by names such as Adeline, LicoriceCake, and Harvey!
@@ -11,5 +11,8 @@ At the moment, I really like Ultimate Senpai by PinocchioP, Cheeseburger Family 
 ## Favourite Characters?:
 Some of my favourite characters at this point in time are Remote (BFDI), Pencil (BFDI), Gumi (Vocaloid/SynthV), Kevin (SynthV), Pecan (Animal Crossing), and Adachi Rei (UTAU/Vocaloid)
 ## What platforms am I on?:
-Discord (themarigoldsthebuttercups), Pony Town (Usually with an Ultimate Senpai skin), TikTok (cyangirl_), and Tumblr (themarigoldsthebuttercups).
-https://tenor.com/view/hello-neighbor-like-and-subscribe-gif-11625085781112065707
+Discord (themarigoldsthebuttercups), Pony Town (Usually with an Ultimate Senpai skin), TikTok (cyangirl_), Tumblr (themarigoldsthebuttercups), and Pinterest (themarigoldsthebuttercups).
+
+<img width="398" height="63" alt="17951212730913228999181603357283" src="https://github.com/user-attachments/assets/43dfdb8f-903f-4d64-ad8e-d9669242a27c" />
+
+
