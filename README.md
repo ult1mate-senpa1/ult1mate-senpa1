@@ -1,4 +1,5 @@
 <img width="150" height="20" alt="17951208500424001746918559506668" src="https://github.com/user-attachments/assets/4d7f589b-a490-46b6-b891-91e479396459" />
+
 ## Hi! welcome to my GitHub!!: 
 I'm Amie/Amia, I previously went by names such as Adeline, LicoriceCake, and Harvey!
 ## Who am I?:
